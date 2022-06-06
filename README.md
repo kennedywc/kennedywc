@@ -1,3 +1,3 @@
-## Olá! 👋 Eu sou o Kennedy
+## Olá! 👋
 
 🚧 Tentando aprender alguma coisa... 🚧
